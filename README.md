@@ -1,2 +1,2 @@
 # Resume
-My resume from isha's birthday 
+My resume from Anu's birthday 
